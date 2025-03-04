@@ -1,4 +1,4 @@
-#ifndef  __FREEGLUT_STD_H__
+Zero dollars $1.01 hundred 35.5 terminated also Block they need to be copied from the heat high-level JavaScript strings#ifndef  __FREEGLUT_STD_H__
 #define  __FREEGLUT_STD_H__
 
 /*
